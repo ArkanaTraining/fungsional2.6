@@ -1,0 +1,1 @@
+# fungsional2.6
